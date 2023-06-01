@@ -1,4 +1,4 @@
-### Ola! Eu sou a Tamires01-alt! ✌️
+### Ola! Eu sou a Tamires01-alt!
 
 ### Utilizo a programação como uma ferramenta de criação, que pode trazer transparência e praticidade para vida das pessoas.
  <br/>
