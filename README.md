@@ -1,6 +1,6 @@
 ### Ola! Eu sou a Tamires01-alt! ✌️
 
-### Utilizo a programação como uma ferramenta de criação que pode trazer transparência e praticidade para vida das pessoas.
+### Utilizo a programação como uma ferramenta de criação, que pode trazer transparência e praticidade para vida das pessoas.
  <br/>
 
 [![Contact](https://img.shields.io/badge/LinkedIn-0077B5?style=for-the-badge&logo=linkedin&logoColor=white)](https://www.linkedin.com/in/tamires-rodrigues/)
